@@ -1,4 +1,4 @@
-👋| Hi, I'm Rebecca Regina
+👋| Hi, I'm Rebeca Regina
 
 💻|Currently, I am a Computer Science student at the Federal Institute of São Paulo
 
