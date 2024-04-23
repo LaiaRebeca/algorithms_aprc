@@ -1,7 +1,7 @@
 👋| Hi, I'm Rebeca Regina
 
-💻| Atualmente sou estudante de Ciência da Computação no Instituto Federal de São Paulo
+💻| I am currently a Computer Science student at the Federal Institute of São Paulo
 
-🌱| Ainda estou descobrindo o que quero seguir, mas tenho interesse em cibersegurança...
+🌱| I'm interested in cybersecurity...
 
-✝️|2 Tessalonicenses 1
+✝️ |2 Thessalonians 1
