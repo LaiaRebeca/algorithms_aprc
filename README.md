@@ -1,7 +1,5 @@
 👋| Hi, I'm Rebeca Regina
 
-💻| I am currently a Computer Science student at the Federal Institute of São Paulo
+💻| Computer Sciences student in Federal Institute of São Paulo
 
-🌱| I'm interested in cybersecurity...
-
-✝️ |2 Thessalonians 1
+✝️ |2 Thessalonians 5.18
